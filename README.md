@@ -1,5 +1,5 @@
 # What is this?
-The SS2k series is an ongoing plot told through the username of a discord user. This site covers theories and problems with the story, and discusses where it might go next.
+The following entries are detailed descriptions of information on the SS2K universe and series.
 
 # Who is **The Author**?
 The author of the series is a discord user who goes by the name SS2K. No more information will be provided...
