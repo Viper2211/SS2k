@@ -1,6 +1,7 @@
 # Names
-- SS2K
-- SS2K is missing?
-- Where is SS2K?
-- The lost SS2K's fury
-- The missing SS2K chopped off a toe
+- SS2k
+- SS2k went missing
+- return of SS2k
+- SS2k went missing again
+- Fury of the lost SS2k
+- The lost SS2k chopped off a toe
