@@ -5,4 +5,5 @@ The SS2k series is an ongoing plot told through the username of a discord user. 
 The author of the series is a discord user who goes by the name SS2K. No more information will be provided...
 
 # Entries
-- [Names](https://viper2211.github.io/SS2k/names "Names")
+- [Names](https://viper2211.github.io/SS2k/names "Names"), 5-4-2021
+- [Chapter 1]()
