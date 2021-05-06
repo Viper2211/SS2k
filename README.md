@@ -8,3 +8,4 @@ The author of the series is a discord user who goes by the name SS2k. No more in
 - [Names](https://viper2211.github.io/SS2k/names "Names"), 5-4-2021
 - [Chapter 1](https://viper2211.github.io/SS2k/chap1 "Chapter 1"), 5-4-2021
 - [Chapter 2](https://viper2211.github.io/SS2k/chap2 "Chapter 2"), 5-4-2021
+- [Chapter 3](https://viper2211.github.io/SS2k/chap3 "Chapter 3"), 5-6-2021

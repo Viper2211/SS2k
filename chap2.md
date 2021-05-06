@@ -21,3 +21,4 @@ SS2k could also have run away from home. For what reason? Nobody knows...
 Well of course, he could just be frustrated. But, when combined with the first username, it is quite possible to conclude that SS2k is angry at his kidnapper. He could also be angry at his family. Thus, the **Kidnapped** and **Running** theories now have quite a solid piece of evidence!
 
 [Home](https://viper2211.github.io/SS2k/)
+[Next](https://viper2211.github.io/SS2k/chap3)
